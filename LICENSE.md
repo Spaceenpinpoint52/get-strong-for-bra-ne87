@@ -1,4 +1,4 @@
-#  
+#  get strong for brainrots elite Scripts is the best get strong for brainrots Script, featuring auto-collect and invisibility. Safe and powerful for
 
 
 
